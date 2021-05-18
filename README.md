@@ -1,0 +1,2 @@
+- 👋 Ahoj Ja sem ItzDragon321
+- Sem čech 
